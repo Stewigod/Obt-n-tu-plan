@@ -1,1 +1,1 @@
-# Obt-n-tu-plan
+# Obten-tu-plan
